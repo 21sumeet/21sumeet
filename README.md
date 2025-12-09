@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sumeetborole43@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1vk50S1T0F0nnw3WOHpEZR5SjqqECplfR/view?usp=sharing](https://drive.google.com/file/d/1YxeIII54j7pU_qzhRkZn3VcJ86kcEkDB/view?usp=sharing)
+- 📄 Know about my experiences [Resume/CV](https://drive.google.com/file/d/1YxeIII54j7pU_qzhRkZn3VcJ86kcEkDB/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
